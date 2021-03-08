@@ -135,6 +135,10 @@
 
 ![在这里插入图片描述](https://img-blog.csdnimg.cn/20210226173451141.png?x-oss-process=image/watermark,type_ZmFuZ3poZW5naGVpdGk,shadow_10,text_aHR0cHM6Ly9ibG9nLmNzZG4ubmV0L3ZqaGdoamdoag==,size_16,color_FFFFFF,t_70)
 
+对此项目感兴趣的可以加交流群
+![在这里插入图片描述](https://img-blog.csdnimg.cn/20210308144258865.png?x-oss-process=image/watermark,type_ZmFuZ3poZW5naGVpdGk,shadow_10,text_aHR0cHM6Ly9ibG9nLmNzZG4ubmV0L3ZqaGdoamdoag==,size_16,color_FFFFFF,t_70)
+如二维码过期 可以加我微信ccc17862701790
+我拉你进群
 
 ## 知识星球
 
