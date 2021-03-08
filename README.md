@@ -75,10 +75,10 @@
 
  ### [实习相关](/实习相关/README.md)
 
- ### [项目相关](/项目相关/README.md)
+ ### [项目相关](https://mp.weixin.qq.com/s/MMYVIveSMFPwbPN8i_9a7Q)
 
 
- ### [刷题相关](/刷题相关/README.md)
+ ### [刷题相关](https://mp.weixin.qq.com/s/xr2abGNv8wDZJ-qyN4KewQ)
 
  ### 基础相关
 
